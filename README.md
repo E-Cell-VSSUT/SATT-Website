@@ -1,0 +1,2 @@
+# SATT-Website
+SATT is a part of the Entrepreneurship cell which focuses on events, start-up, competitions, workshops which is organised in the same college or other institutions all over India. This aims to bring new start up ideas into field of entrepreneurship world. This is the place where students will learn and experience the toughest journey of an entrepreneurs. Fund raising, start-up exposion and startup acceleration is given maximum priority.
